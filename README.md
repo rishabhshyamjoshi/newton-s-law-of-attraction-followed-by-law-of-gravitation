@@ -1,0 +1,1 @@
+# newton-s-law-of-attraction-followed-by-law-of-gravitation
